@@ -1,0 +1,6 @@
+reamde
+
+yo is podcast / audio / radio show reader for your phone
+
+the next information soon....
+
