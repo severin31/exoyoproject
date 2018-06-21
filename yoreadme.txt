@@ -7,4 +7,5 @@ the next information soon....
 first, we should agree about the basic vocabulary
 
 
-yo means...
+yo means... NO !!!!!!!!!!!!!!!
+
